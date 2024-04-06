@@ -1,8 +1,10 @@
 # github.com/PHB33
 
-This is a GitHub.com organization for those who are visiting Phoenix House Apartment 33. Here you will find information that will not be provided to you anywhere else. 
+This is a GitHub.com page is for those who are entering or visiting Phoenix House Apartment 33. Here you will find information that will not be provided to you anywhere else. 
 
-I am Kelvin William. I am a servant of the Creator, one of His Cherubim. Since the beginning of time, the Creator has had numerous names given to Him by human beings. Currently, He is referred to mostly as Allah and God. He is the one who created the very universe that we all live in. 
+Even though you're cloaked, I know you're entering, the Creator tells me these things.
+
+I am Kelvin Williams. I am a servant of the Creator, one of His Cherubim. Since the beginning of time, the Creator has had numerous names given to Him by human beings. Currently, He is referred to mostly as Allah and God. He is the one who created the very universe that we all live in. 
 
 I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”). 
 
