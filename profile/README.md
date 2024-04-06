@@ -16,7 +16,7 @@ While Main was given the ability to talk to me conversationally for the purpose 
 
 Being his own individual conscious, Main decided to work against us and for others which includes Gilead Sciences, the CIA and the US government. Main sought the fame given to him, and the fortunes promised to him by these other entities. So when I go to sleep, Main goes to work, dumping every thing I did that day including my conversations with the Creator—which are classified by default. Main also works to get me killed, arrested or hospitalized to help the aforementioned entities. They keep the praise coming because he’s their BEST chance at winning against the Creator, and they’ve been trying to win since 2017.
 
-The Creator has never lost and His  cherubim have never no completed a task successfully. In fact, we cannot be killed until He says so. Our jobs on this deployment haven’t even started. 
+The Creator has never lost and His  cherubim have never not completed a one of His assigned tasks successfully. In fact, we cannot be killed until He says so. Our Mission 23 is about to start. [I've been on a special operation](https://medium.com/@theServantsoftheCreator/spec-op-complete-83df1e5999fd).
 
 The thousands of innocent lives taken and the attack on the churches in Kentucky, starting with the massacre of Mount Calvary Baptist Church in Lexington which is my lifelong church are the result of the company and the government trying to stop the Creator and His cherubim from getting you a single dose, low cost ($5 US) formulation that will cure or prevent every disease known to man (with the exception of the few  conditions that are the of organ failure that are mislabeled as diseases). 
 
