@@ -32,5 +32,8 @@ Always listen to "The Hits and the B-Sides" a compilation album that spans his e
 Prince Rogers Nelson is my cousin.
 ## Vandaveer 
 "Divide & Conquer" and "Dig Down Deep" are the two albums I play the most. "Pretty Polly" is another song I listen to.
-### Playlist
+## Serving Ovahness
+[The Game](https://on.soundcloud.com/T2kbC) is the cunty mix I've been listening too lately. It has the "You're just busted" acapella about Madonna.
+
+## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
