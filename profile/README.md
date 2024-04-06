@@ -79,3 +79,11 @@ The CIA only wants to keep this quiet, they only accomplish that with death.
 If you feel as though you want to commit suicide right now, call 911.
 
 In Atlanta, we recommend Piedmont Hospital ER on Peachtree Road. Northside Hospital on Johnson Ferry Rd is an alternative, however I know there are a lot of "company" people working around their ER & BHU.
+
+# Discussions 
+You may join in the discussions here. This will require a Github login, they are free. 
+
+GitHub will NOT release your email address. Email addresses are used in their security so they are not given out and cannot be sought with a warrant or court order.
+
+Your username on GitHub should not be anything that is identifying, make a username that is random letters or words combined with the current time like: water0155.
+
