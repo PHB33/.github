@@ -29,6 +29,9 @@ Learn more about [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) 
 Want to listen to the music? 
 ## Prince
 Always listen to "The Hits and the B-Sides" a compilation album that spans his entire career. 
+The album name is because of the hits I take, some of you came here to do one, the others just to observe it. The "B-sides" is for "Baby" which is how some refer to Main.
+Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all tell stories.
+When The Doves Cry is only about [the massacre of my lifelong church, Mount Calvary Baptist Church](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC).
 Prince Rogers Nelson is my cousin.
 ## Vandaveer 
 "Divide & Conquer" and "Dig Down Deep" are the two albums I play the most. "Pretty Polly" is another song I listen to.
