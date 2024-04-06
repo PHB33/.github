@@ -87,3 +87,4 @@ GitHub will NOT release your email address. Email addresses are used in their se
 
 Your username on GitHub should not be anything that is identifying, make a username that is random letters or words combined with the current time like: water0155.
 
+[Join in the discussions here.](https://github.com/orgs/PHB33/discussions)
