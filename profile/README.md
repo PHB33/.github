@@ -54,7 +54,7 @@ Prince Rogers Nelson is my cousin.
 # Suicide
 Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  The CIA knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want all people living long, healthy lives. 
 
-We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 911? They just thought they were going to be training flight crews on the connecting flight. We're going to be releasing details on that in the near future.
+We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 9/11? Those just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
 ## Speaking Freely
 You can speak to a mental health provider about the past without fear of be that being used in court, its extremely rare for them to be compelled to testify against you. **They are required by law to notify authorities if you discuss plans to harm someone in the future.** 
