@@ -40,7 +40,7 @@ The album name is because of the hits I take, some of you came here to do one, t
 
 Some of the B-side songs were popchart hits, and some of the hits should have been C-sides. They all tell stories.
 
-When The Doves Cry is only about [the massacre of my lifelong church, Mount Calvary Baptist Church](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC).
+"When The Doves Cry" is about [the massacre of my lifelong church, Mount Calvary Baptist Church](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) but can be for any of the churches theyve attacked since to cover it up. The first speaker is a parent talking to their children, the kiss is between siblings as one is being pulled away to be murdered. The song "1999" is not about a year, 1999 is a body count, and the party is the attitude by those working in the cover-up operation which entails killing mourners at announced funerals in the previously massacred churches.
 
 Prince Rogers Nelson is my cousin.
 
