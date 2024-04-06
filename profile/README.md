@@ -20,7 +20,8 @@ The thousands of innocent lives taken and the attack on the churches in Kentucky
 
 There are many things that make the Cherubim a threat to national security, ultimately it’s our Boss (the Creator). However we are always deployed in the interest of preserving and protecting life. You should know that your presence here has greatly jeopardized your life, and the threat to it isn’t the Creator or His cherubim, but the company or government that sent you to my apartment. 
 
-The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the massacre began going back to her hotel room. So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
+The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre]((https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) 
+began going back to her hotel room--she knew it would be so bad that most who went would kill themselves (see suicide below).  So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
 
 Please take the time to read everything linked here. Knowledge is power. 
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
@@ -49,3 +50,26 @@ Prince Rogers Nelson is my cousin.
 
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
+
+# Suicide
+Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  The CIA knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want all people living long, healthy lives. 
+
+## Speaking Freely
+You can speak to a mental health provider about the past without fear of be that being used in court, its extremely rare for them to be compelled to testify against you. **They are required by law to notify authorities if you discuss plans to harm someone in the future.** 
+
+Members of the clergy are forbidden from talking to anyone but God about anything you tell them while they are carrying out pastoral duties.
+
+## Start Talking NOW 
+Don't wait until you feel suicidal, you want to prevent getting to that point. Talking to someone about the ordeal now is the best way to prevent being suicidal.
+
+## Where NOT To Seek Help
+* Mobile Crisis should NOT be contacted, they are the CIA. 
+* Grady Hospital in Atlanta has a relationship with the CIA and will share with them your visit and anything you discuss.
+* The CIA.
+
+The CIA only wants to keep this quiet, they only accomplish that with death.
+
+## Suicide Emergency 
+If you feel as though you want to commit suicide right now, call 911.
+
+In Atlanta, we recommend Piedmont Hospital ER on Peachtree Road. Northside Hospital on Johnson Ferry Rd is an alternative, however I know there are a lot of "company" people working around their ER & BHU.
