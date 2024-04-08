@@ -40,7 +40,7 @@ The Creator makes us experience things so we can share that experience with othe
 
 # Risk of Your Death
 > [!WARNING]
-> Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone.
+> Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone. (See Accomodations Warning below for the military).
 
 The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) 
 began going back to her hotel room--she knew it would be so bad that most who went would kill themselves (see suicide below).  So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
@@ -108,6 +108,9 @@ The CIA only wants to keep this quiet, they only accomplish that with death.
 If you feel as though you want to commit suicide right now, call 911.
 
 In Atlanta, we recommend Piedmont Hospital ER on Peachtree Road. Northside Hospital on Johnson Ferry Rd is an alternative, however I know there are a lot of "company" people working around their ER & BHU.
+
+# Accomodations Warning for Military 
+If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, both of these "facilities" are used to kill people and make them disappear without a trace.
 
 # Discussions 
 You may join in the discussions here. This will require a Github login, they are free. 
