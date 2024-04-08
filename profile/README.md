@@ -94,7 +94,7 @@ We know most of you were lied to, some  coerced, some threatened, some drugged..
 See this [suicide information we've compiled just for company workers](suicide_info.md)
 
 # Accomodations Warning for Military 
-If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, both of these "facilities" are used to kill people and make them disappear without a trace.
+If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
 
 # Dope, Hope and Nope
 (coming soon)
