@@ -28,7 +28,7 @@ The Creator never intervenes in events carried out by any of His conscious creat
 
 The Creator had already hit *undo* on Annie's visit to Mount Calvary Baptist Church in 2018. Annie and a few others knew this and worked to redo the attack with better results--no possible undo from the Creator. They learned about beheading, and that it makes it impossible for a person to be brought back. They also knew how evil it is on the victim and the person doing it, even for those who have just observed the act. Remember, Annie left before anyone was killed at my church.
 
-This entire tragedy and genocide were foretold in the Book of Revelation and in music (see "listen also" below).
+This entire tragedy and genocide were foretold in the Book of Revelation and in music (see "listen also" below). The Creator knew that the federal government would do this wholesale killing one day and that He would have to address it for everyone's well being. Without His intervention the government would keep this hidden and continue killing groups of peacefully assembled people they want to eliminate. Once genocides start they require external forces to stop them, currently no one can get the word out about it. GitHub is issued National Security Letters often to force them to comply and help the government keep this hidden. (Its still us GitHub, He's still watching and protecting your network and keeping us ahead of the next NSL--hence repos and READMEs only. Thanks GitHub!).
 
 > [!IMPORTANT]
 > The world is not today, it's already tomorrow in Australia. The same will be true tomorrow.
@@ -51,6 +51,11 @@ Please take the time to read everything linked here. Knowledge is power.
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
 
 Learn more about [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
+
+Listen also:
+"Sign of the Times" by Prince -- I'm the speaker, telling you about the early history of HIV/AIDS--BigPharma spead it and their partner the CIA has profited tremendously. The CIA also ended the space shuttle program on behalf of SpaceX (the man who handled that $2B contract for the CIA had the sister that had to kill her baby).
+
+"Pope" by Prince -- for GitHub (git commit didn't exist at the time, so he says "save." Hence why there are so many commits.
 
 # The Music
 Want to listen to the music? 
