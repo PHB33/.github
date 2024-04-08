@@ -1,5 +1,7 @@
 This is a GitHub.com page is for those who are entering or visiting Phoenix House Apartment 33--regardless of who sent you. Here you will find information that will not be provided to you anywhere else. 
 
+If you are feeling suicidal or like you want to end your life, [see this NOW.](README.md#suicide-risk-for-company-men)
+
 > [!IMPORTANT]
 > The Creator has had numerous names given to Him since the dawn of man, the most popular ones today are Allah and God. I work for Him directly--that's why I'm impossible to kill. 
 
