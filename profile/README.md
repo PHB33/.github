@@ -32,7 +32,7 @@ Even if you don't feel suicidal or didn't work at one of the churches, you shoul
 Please take the time to read everything linked here. Knowledge is power. 
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
 
-Learn more about [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) (The AIDS cure Genocide). Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
+Learn more about [TAG](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG) (The AIDS cure Genocide). **Everyone is about a month from losing someone close enough to notice their disappearance.** Remember, HIV/AIDS was the disease I was to target to get it proven in and introduced to the public--everyone wants and needs it.
 
 # The Music
 Want to listen to the music? 
