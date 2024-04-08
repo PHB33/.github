@@ -11,7 +11,9 @@ For me once it was my dogs. I literally had to think, "Who would come feed my do
 # Suicide Emergency 
 If you feel like you may end your life immediately, you need to call 911 or get to the nearest Emergency Room now.
 
-In metro-Atlanta we recommend Northside Hospital (1000 Johnson Ferry Rd, Atlanta) or Piedmont Hospital (1968 Peachtree Rd, Atlanta). Grady should be used as a last resort (they have undisclosed relations with the CIA).
+In metro-Atlanta we recommend Piedmont Hospital ER (1968 Peachtree Rd, Atlanta). 
+
+Northside Hospital (1000 Johnson Ferry Rd, Atlanta) and Grady have undisclosed relations with the CIA.
 
 # Suicidal Thoughts 
 - National Suicide Prevention Hotline: 800-273-TALK (8255)
@@ -20,6 +22,8 @@ In metro-Atlanta we recommend Northside Hospital (1000 Johnson Ferry Rd, Atlanta
 Talking to a therapist or other professional you should understand that nothing you say about the past can be disclosed to anyone by the therapist and law enforcement will never be notified, that it's the law. For example if you say, "I killed five people yesterday." The therapist may ask you, "How do you feel about that?" in an effort to help you come to terms with it. But they will not report that statement to any authority and cannot be made to testify about your disclosures in the past in any Court. 
 
 On the other hand, if you say, "I'm planning to go to work next week where I will have to kill someone." The therapist will have to report that to the authorities. They have to go to authorities because it potentially saves a life. 
+
+You can also find a member of the clergy (priest or pastor) to discuss your thoughts on suicide. What is disclosed to a member of the clergy is generally never sought in court as the clergy historically never discuss what you talk about with them to nobody by God.
 
 > [!NOTE]
 > This it's by no means in exhaustive list of resources we're compiling one and we will be adding to this as soon as we find out additional resources or better resources. 
