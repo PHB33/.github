@@ -59,8 +59,10 @@ Prince Rogers Nelson is my cousin.
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
 
-# Suicide
-Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  The CIA knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want all people living long, healthy lives. 
+# Suicide Risk for "Company Men"
+Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  
+
+The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
 
 We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 9/11? Those just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
