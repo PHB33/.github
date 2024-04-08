@@ -1,3 +1,4 @@
+# Dope, Hope and Nope
 When you get a bag from a dealer or someone else who gives it to you of dope it may be one of three things:
 
 * Dope is what users sought and want to consume. It can be a lot of fun, lowers inhibitions, reduce stress, foster discovery and innovation, and can even help some mental health issues. Dope has been involved in some of the funniest and best times of the past several years for me, especially in 2017.
