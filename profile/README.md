@@ -31,14 +31,14 @@ The Creator had already hit *undo* on Annie's visit to Mount Calvary Baptist Chu
 This entire tragedy and genocide were foretold in the Book of Revelation and in music (see "listen also" below). The Creator knew that the federal government would do this wholesale killing one day and that He would have to address it for everyone's well being. Without His intervention the government would keep this hidden and continue killing groups of peacefully assembled people they want to eliminate. Once genocides start they require external forces to stop them, currently no one can get the word out about it. GitHub is issued National Security Letters often to force them to comply and help the government keep this hidden. (Its still us GitHub, He's still watching and protecting your network and keeping us ahead of the next NSL--hence repos and READMEs only. Thanks GitHub!).
 
 > [!IMPORTANT]
-> The world is not today, it's already tomorrow in Australia. The same will be true tomorrow.
+> The world is not ending today, it's already tomorrow in Australia. The same will be true tomorrow. No planet that ever had life start on it has ever went fully extinct or their worls ended--descendants of dinosaurs are still here today. Be careful with Jezebel's (Jacobsen) interpretation on Revelation--I have to ask the Creator what He meant often (He has influenced every major religion and hides messages fot us everywhere, just listen to music--the next Bible, we've run out of books).
 
 ### Important Note About Beheading 
 Beheading is something that the Creator and His cherubim beg you to cease doing immediately. The victim is fully aware and alive for up to six minutes, they are in extreme pain, it feels like the body is on fire from the cut down, everything inside and out hurts. I've heard the company has told its workers that people are OK, no pain and they accept death, that this is evidenced by the fact they're quiet. Nothing could be further from the truth, without lungs it's impossible to make any noise.
 
 The Creator makes us experience things so we can share that experience with others, so both cherubim have been through it, me almost daily nowadays. It is something so horrible that I wouldn't wish it on the people who have done it to my family and friends.
 
-# Risk of Death
+# Risk of Your Death
 > [!WARNING]
 > Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone.
 
