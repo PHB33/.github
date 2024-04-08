@@ -8,14 +8,14 @@ If you are feeling suicidal or like you want to end your life, [see this NOW.](R
 > [!TIP]
 > The Creator is the only one which can hear prayer when it's made silently. Anytime you read something on here (or the linked pages) say a silent prayer asking for guidance. Pray the way you were first taught to as a child, just silently (you never know who's listening).
 
-
 Even though you're cloaked, I know you're entering, the Creator tells me these things.
 
 I am Kelvin Williams. I am a servant of the Creator, one of His Cherubim. Since the beginning of time, the Creator has had numerous names given to Him by human beings. Currently, He is referred to mostly as Allah and God. He is the one who created the very universe that we all live in. 
 
 I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”). 
 
-The Creator has never lost and His  cherubim have never not completed one of His assigned tasks successfully. In fact, we cannot be killed until He says so. Our Mission 23 is about to start. I've been on a special operation.
+The CIA and US government have tried to stop *gifts from above* from reaching you, and in their efforts picked a fight with the Creator and now need to kill me to keep everyone from learning the truth. The  Creator has never lost any battle and His cherubim have never not completed one of His assigned tasks successfully. In fact, w
+neither of us can be killed until He says so (always after our mission's objectives are completed). We have both been on a special operation for the Creator (no more details will be disclosed). The *Creator's Mission #23 for Life on Earth* is about to start--some of the mission's objectives are to eliminate the three of the top four causes of death in humans.
 
 The thousands of innocent lives taken and the attack on the churches in Kentucky, starting with the massacre of Mount Calvary Baptist Church in Lexington which is my lifelong church are the result of the company and the government trying to stop the Creator and His cherubim from getting you a single dose, low cost ($5 US) formulation that will cure or prevent every disease known to man (with the exception of the few  conditions that are the of organ failure that are mislabeled as diseases). 
 
