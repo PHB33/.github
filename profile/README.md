@@ -91,25 +91,7 @@ The company (which IS the CIA) knows that the overwhelming majority of those who
 
 We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 9/11? Those just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
-## Speaking Freely
-You can speak to a mental health provider about the past without fear of be that being used in court, its extremely rare for them to be compelled to testify against you. **They are required by law to notify authorities if you discuss plans to harm someone in the future.** 
-
-Members of the clergy are forbidden from talking to anyone but God about anything you tell them while they are carrying out pastoral duties.
-
-## Start Talking NOW 
-Don't wait until you feel suicidal, you want to prevent getting to that point. Talking to someone about the ordeal now is the best way to prevent being suicidal.
-
-## Where NOT To Seek Help
-* Mobile Crisis should NOT be contacted, they are the CIA. 
-* Grady Hospital in Atlanta has a relationship with the CIA and will share with them your visit and anything you discuss.
-* The CIA.
-
-The CIA only wants to keep this quiet, they only accomplish that with death.
-
-## Suicide Emergency 
-If you feel as though you want to commit suicide right now, call 911.
-
-In Atlanta, we recommend Piedmont Hospital ER on Peachtree Road. Northside Hospital on Johnson Ferry Rd is an alternative, however I know there are a lot of "company" people working around their ER & BHU.
+See this [suicide information we've compiled just for company workers](suicide_info.md)
 
 # Accomodations Warning for Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, both of these "facilities" are used to kill people and make them disappear without a trace.
