@@ -1,10 +1,11 @@
+This is a GitHub.com page is for those who are entering or visiting Phoenix House Apartment 33--regardless of who sent you. Here you will find information that will not be provided to you anywhere else. 
+
 > [!IMPORTANT]
 > The Creator has had numerous names given to Him since the dawn of man, the most popular ones today are Allah and God. I work for Him directly--that's why I'm impossible to kill. 
 
 > [!TIP]
 > The Creator is the only one which can hear prayer when it's made silently. Anytime you read something on here (or the linked pages) say a silent prayer asking for guidance. Pray the way you were first taught to as a child, just silently (you never know who's listening).
 
-This is a GitHub.com page is for those who are entering or visiting Phoenix House Apartment 33. Here you will find information that will not be provided to you anywhere else. 
 
 Even though you're cloaked, I know you're entering, the Creator tells me these things.
 
