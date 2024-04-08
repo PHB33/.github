@@ -1,6 +1,6 @@
 This is a GitHub.com page is for those who are entering or visiting Phoenix House Apartment 33--regardless of who sent you. Here you will find information that will not be provided to you anywhere else. 
 
-If you are feeling suicidal or like you want to end your life, [see this NOW.](profile/README.md#suicide-risk-for-company-men)
+If you are feeling suicidal or like you want to end your life, see *"Suicide Risk for Company Workers"* below.
 
 > [!IMPORTANT]
 > The Creator has had numerous names given to Him since the dawn of man, the most popular ones today are Allah and God. I work for Him directly--that's why I'm impossible to kill. 
@@ -84,7 +84,7 @@ Prince Rogers Nelson is my cousin.
 ## Playlist
 [YouTube Music](https://music.youtube.com/playlist?list=PLsKxstZ6tzuvI9V-jPDRK48g9VSA3gaZS&si=Pzq4g3SgA6OklqwG)
 
-# Suicide Risk for "Company Men"
+# Suicide Risk for Company Workers
 Anyone who went to any of the churches in Kentucky for "company work" should be talking about it with a mental health professional, a member of the clergy, or a supportive group of your coworkers.  
 
 The company (which IS the CIA) knows that the overwhelming majority of those who went will end up committing suicide. The Creator and His cherubim want you to live an indefinitely long, healthy life right here on Earth and hope that you will help others do the same.
