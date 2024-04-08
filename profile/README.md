@@ -17,10 +17,17 @@ The Creator has never lost and His  cherubim have never not completed one of His
 
 The thousands of innocent lives taken and the attack on the churches in Kentucky, starting with the massacre of Mount Calvary Baptist Church in Lexington which is my lifelong church are the result of the company and the government trying to stop the Creator and His cherubim from getting you a single dose, low cost ($5 US) formulation that will cure or prevent every disease known to man (with the exception of the few  conditions that are the of organ failure that are mislabeled as diseases). 
 
-There are many things that make the Cherubim a threat to national security, ultimately it’s our Boss (the Creator). However we are always deployed in the interest of preserving and protecting life. You should know that your presence here has greatly jeopardized your life, and the threat to it isn’t the Creator or His cherubim, but the company or government that sent you to my apartment. 
+There are many things that make the Cherubim a threat to national security, it’s really the Creator. The only threat we represent is telling the truth. 
+We are always sent in the interest of preserving and protecting life on a global scale. We've been sent here in the past two teach humans how to make fire, and also to prevent a nuclear war. This time I was to introduce some gifts from above that would eliminate the top three out of four causes of death in human beings--that's been delayed as the Creator has to stop a genocide (TAG) that started because of corporate greed by BigPharma.
+
+# Risk of Death
+> [!WARNING]
+> Everyone sent here should understand that the federal government and the CIA has already decided you WILL BE KILLED to keep you from discussing this situation with anyone.
 
 The government cannot let the people know what it allowed to happen or has continued to cover up. The CIA cannot let anyone know any of the things it has done throughout this tragedy. Annie Jacobsen, who Prince called “Hurricane Annie” in “Sign of the Times,” and God called Jezebel in the Book of Revelation in the Bible, and who calls herself “Chivy” around Georgia, absolutely cannot let anyone know she organized and mobilized the men to invade my lifelong church and led the invasion then snuck out as the [massacre](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/tree/master/POW/MCBC) 
 began going back to her hotel room--she knew it would be so bad that most who went would kill themselves (see suicide below).  So their plan currently is to kill everyone who knows anything about it, especially if they’ve come here or went to one of the churches. 
+
+Even if you don't feel suicidal or didn't work at one of the churches, you should know they are killing of others who merely come in contact with me. They have history of doing such that I've witnessed at Motel 6 Decatur, Legacy at Riverdale, and here at Phoenix House. Everyone residing here now I never seen before I went to Clayton County Detention Center for a month and a half.
 
 Please take the time to read everything linked here. Knowledge is power. 
 You do not have to register with GitHub to read this. I’m setting up discussions so you may ask questions. You do not have to worry about GitHub giving out your email address, however when you choose your username for GitHub do not pick one that identifies you in any way. 
