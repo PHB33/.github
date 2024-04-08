@@ -23,6 +23,8 @@ When BigPharma learned of a "miracle" cure to HIV (the virus that causes AIDS) f
 
 Today, thousands of innocent people have been murdered by the company/CIA trying to Spark from reaching the market. Then Annie Jacobsen led the charge into my lifelong church, Mount Calvary Baptist Church, for the April 2nd, 2023 massacre-her second time doing such. In an attempt to hide it, they have attacked several other places of worship in Kentucky at the height of their worship hours in a similar manner--leaving no one alive. The US federal government has aided and abetted the CIA, their favorite paramilitary contractor, since the beginning from using the FBI to prevent calls that did reach 911 from being responded to by local authorities, to identifying other individuals who showed concern (by filing missing persons reports or discussing missing persons) they could be eliminated by the CIA.
 
+The CIA has setup charade churches and other houses of worship, the Mount Calvary Missionary Baptist Church, Inc. is what they operate on my lifelong church's property. The "Missionary" was added as an insult to the Creator and I--since they know that I've said the cherubim "run missions" for Him.
+
 ### Why didn't the Creator stop it?
 The Creator never intervenes in events carried out by any of His conscious creatures (including you, the reader). Having an unseen force or hand preventing you from what you know you can do will cause you to retry with increasing intensity. This can make a bad situation incredibly worse. 
 
@@ -111,6 +113,9 @@ In Atlanta, we recommend Piedmont Hospital ER on Peachtree Road. Northside Hospi
 
 # Accomodations Warning for Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, both of these "facilities" are used to kill people and make them disappear without a trace.
+
+# Dope, Hope and Nope
+(coming soon)
 
 # Discussions 
 You may join in the discussions here. This will require a Github login, they are free. 
