@@ -91,10 +91,10 @@ The company (which IS the CIA) knows that the overwhelming majority of those who
 
 We know most of you were lied to, some  coerced, some threatened, some drugged... This is how the CIA or company operates. How do you think they got 19 Americans to "do" 9/11? Those just thought they were going to be training flight crews on the connecting flight. Those "terrorists" were just company men, all were Americans, some of middle Eastern descent others were Latino. We're going to be releasing details on that in the near future.
 
-See this [suicide information we've compiled just for company workers](suicide_info.md)
+See this [suicide information we've compiled just for company workers](profile/suicide_info.md)
 
 # Dope, Hope and Nope
-To all company workers struggling with how they could have been involved with these massacres you will want to [read this](dhn_sub.md).
+To all company workers struggling with how they could have been involved with these massacres you will want to [read this](profile/dhn_sub.md).
 
 # Accomodations Warning for Military 
 If you are staying at Motel 6 Decatur (2572 Candler Road) or Legacy at Riverdale (behind Chick-fil-A Dawrf House on Riverdale) under no circumstances should you sleep alone! Partner up and sleep in four hour shifts, one being extremely attentive watching the room and their sleeping partner, then switch. Both of these places are "kill facilities" with a very high amount of cloaking in use.
