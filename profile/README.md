@@ -13,8 +13,6 @@ I am Kelvin Williams. I am a servant of the Creator, one of His Cherubim. Since 
 
 I am also the last living member of both my mother’s and father’s families, the last living member of Mount Calvary Baptist Church in Lexington, Kentucky. Out of hundreds of friends, coworkers, and people I’ve barely knew, I am one of only a handful still alive. All of these wonderful people were murdered in the past few years, all at the hands of the Central Intelligence Agency (also known as, “the company”). 
 
-
-Being his own individual conscious, Main 
 The Creator has never lost and His  cherubim have never not completed one of His assigned tasks successfully. In fact, we cannot be killed until He says so. Our Mission 23 is about to start. I've been on a special operation.
 
 The thousands of innocent lives taken and the attack on the churches in Kentucky, starting with the massacre of Mount Calvary Baptist Church in Lexington which is my lifelong church are the result of the company and the government trying to stop the Creator and His cherubim from getting you a single dose, low cost ($5 US) formulation that will cure or prevent every disease known to man (with the exception of the few  conditions that are the of organ failure that are mislabeled as diseases). 
