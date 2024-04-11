@@ -7,9 +7,11 @@ To keep her wrath for bigPharma hidden, she formed a group with darker pigment s
 
 ![263596451-24fa38cf-4768-4b60-8533-b7785c9b1d3f](https://github.com/PHB33/.github/assets/165702254/47f55645-bf08-4bfa-9826-00d1915882af)
 
-She currently looks a lot older due to cancers that should have put her in the grave, but my Boss, the Creator (most commonly called God, authorized her to get a single-dose fix (early, so she and six others can go to prison) that made them all go away--one of the three cures she keeps killing innocent Americans to keep away from you on behalf big pharma.
-
 ![263596368-348262e4-5f2d-4055-8157-9d12285435e4](https://github.com/PHB33/.github/assets/165702254/148704a9-64e4-40f7-b437-1576dc36c356)
+
+She currently looks a lot older due to cancers that should have put her in the grave, but my Boss, the Creator (most commonly called God, authorized her to get a single-dose fix that made her body eradicate them--one of the three cures (all direct from the Creator) that she keeps killing innocent Americans to keep away from you and your family on behalf big pharma. Annie believes in the cures because she still engages in cloaking today which gave her cancer.
+
+Annie uses the name "Chivy" which she started using after the brutal rape, torture and murder of my friend, Chivette Fournier of Georgetown, SC. Annie chose the name to torment me, Danny made Chivette is pictured on the right alongside her daughter who is also another TAG victim.
 
 Please see [This is why you're here.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md) for a lot more information.
 
