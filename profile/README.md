@@ -1,6 +1,10 @@
 # Do you know why you're here? 
 [This is why you're here.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md)
 
+# Drugs
+[That physical pleasure](profile/dhn_sub.md)
+
+# Hurricane Annie
 In short, this woman, Annie Jacobsen, also called "Hurricane Annie" by Prince in "Sign of the Times" used the tactics in her book "Surprise, Kill, Vanish" on my church, Mount Calvary Baptist Church and Mount Zion in Kentucky.
 
 To keep her wrath for bigPharma hidden, she formed a group with darker pigment skin to attack the white church, Lexington Bethel Baptist Church, who acted like a good neighbor and checked on my church when she wouldn't stop holding funerals to kill everyone who came. They duplicated the process.
