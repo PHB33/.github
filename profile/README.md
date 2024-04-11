@@ -13,6 +13,8 @@ She currently looks a lot older due to cancers that should have put her in the g
 
 Annie uses the name "Chivy" which she started using after the brutal rape, torture and murder of my friend, Chivette Fournier of Georgetown, SC. Annie chose the name to torment me, Danny made Chivette is pictured on the right alongside her daughter who is also another TAG victim.
 
+![FB_IMG_1712797499728](https://github.com/PHB33/.github/assets/165702254/5257ebf6-9553-45d3-9b99-36441097b31b)
+
 Please see [This is why you're here.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md) for a lot more information.
 
 ***
