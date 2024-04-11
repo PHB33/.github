@@ -11,12 +11,15 @@ Those operatives would talk to the sleeping user’s subconscious. Everyone’s 
 
 The Creator says, “The conscious thinks it controls its body and the subconscious thinks it can think they are both wrong.”
 
-Right now your subconscious is thinking the same thing you are and is equally as smart as the conscious as it is thinking what the conscious is. The truth is, the two of you don’t know who is doing what. When the conscious goes to sleep or is sleeping (which it must) the subconscious doesn’t know that it is then very limited in its thinking abilities. There’s an old adage, “Being stupid is like being dead, you are the last one to ever know.” Now thinking of that saying, think of the stupidest person you know, and imagine everyone in their world telling them they’re smart. Mamma, Teacher or one of their trusted assistants will do just that, your subconscious will do anything for them.  (Listen also: “200 Balloons” by Prince – This is a song that is still prophecy, I cannot get Main to understand that he doesn’t have to do anything but show intent or the desire to do it for him to be charged, convicted and imprisoned forever.)
+Right now your subconscious is thinking the same thing you are and is equally as smart as the conscious as it is thinking what the conscious is. The truth is, the two of you don’t know who is doing what. When the conscious goes to sleep or is sleeping (which it must) the subconscious doesn’t know that it is then very limited in its thinking abilities. There’s an old adage, “Being stupid is like being dead, you are the last one to ever know.” Now thinking of that saying, think of the stupidest person you know, and imagine everyone in their world telling them they’re smart. Mamma, Teacher or one of their trusted assistants will do just that, your subconscious will do anything for them.  
 
 Some cravings and habits come only from the subconscious. When they make a decision you’ll never know it wasn’t yours. 
 
 > **Listen Also:**
 > “God” by Prince, that’s my subconscious hearing itself for the first time and “finding it’s voice” after we are split into two people. The song hasn't flipped yet (moved from foretelling the future to a retelling of a past event).
+
+> **Listen Also:**
+> “200 Balloons” by Prince – I cannot get Main (my subconscious) to understand that he doesn’t have to do anything but show intent or the desire to do it for him to be charged, convicted and imprisoned forever. The song hasn't flipped yet (moved from foretelling the future to a retelling of a past event).
 
 > [!NOTE]
 > This write up isn't complete but the attacks on myself and my phone are increasing. Check back in a bit, just reload the page. 
