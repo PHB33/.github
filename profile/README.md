@@ -11,6 +11,9 @@ She currently looks a lot older due to cancers that should have put her in the g
 
 ![263596368-348262e4-5f2d-4055-8157-9d12285435e4](https://github.com/PHB33/.github/assets/165702254/148704a9-64e4-40f7-b437-1576dc36c356)
 
+Please see [This is why you're here.](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md) for a lot more information.
+
+***
 
 ## About Rhythm Sticks
 If you are a male escort, dancer, model or just a guy known for your _rhythm stick_ and you're reading this [click here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md). This is a matter of your life or death.
